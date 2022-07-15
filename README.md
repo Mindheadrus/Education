@@ -1,1 +1,1 @@
-# mindhead
+# Education
